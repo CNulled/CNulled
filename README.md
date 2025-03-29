@@ -11,7 +11,7 @@
 
 - 💬 Ask me about **C++,C,Powershell And C***
 
-- 📫 How to reach me **halilcoban@hotmail.com**
+- 📫 How to reach me **Telegram:CNulled**
 
 - ⚡ Fun fact **I am Funny**
 
